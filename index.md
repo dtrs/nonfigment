@@ -3,11 +3,11 @@ In free time I'm also working as a system administrator.**
 
 ### So, here the links:
 
-- For weird stuff from my head (in small volumes) ( twitter.com/phorsberg )
-- Texts and other TL;DR - ( eigensender.nonfigment.com )
-- Home for stories, nuclear-apocalypse-themed novels and other stuff is llive in Telegram channel - ( t.me/phorsberg ) 
-- Photos (from my life moments) - ( instagram.com/nonfigment )
-- Photo works — ( 500px.com/nonfigment )
+- For weird stuff from my head (in small volumes) (https://twitter.com/phorsberg)
+- Texts and other TL;DR - (https://eigensender.nonfigment.com)
+- Home for stories, nuclear-apocalypse-themed novels and other stuff is llive in Telegram channel - [https://t.me/phorsberg] 
+- Photos (from my life moments) - [https://instagram.com/nonfigment](https://instagram.com/nonfigment)
+- Photo works — ( https://500px.com/nonfigment )
 
 
 
