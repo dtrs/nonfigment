@@ -5,9 +5,9 @@ In free time I'm also working as a system administrator.**
 
 - For weird stuff from my head (in small volumes) ( twitter.com/phorsberg )
 - Texts and other TL;DR - ( eigensender.nonfigment.com )
-- Home for stories, nuclear-apocalypse-themed novels and other stuff is llive in Telegram channel - (t.me/phorsberg) 
-- Photos (from my life moments) - (instagram.com/nonfigment)
-- Photo works — (500px.com/nonfigment)
+- Home for stories, nuclear-apocalypse-themed novels and other stuff is llive in Telegram channel - ( t.me/phorsberg ) 
+- Photos (from my life moments) - ( instagram.com/nonfigment )
+- Photo works — ( 500px.com/nonfigment )
 
 
 
