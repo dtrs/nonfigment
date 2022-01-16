@@ -1,3 +1,7 @@
+### Welcome!
+
+![Image](/_img/me_web_800.jpg)
+
 **My name is Dmitry Forsberg, I create sci-fi novels, sites, music and photos.
 In free time I'm working as a system administrator. (Open for other opportunities, SA was a mistake)**
 
